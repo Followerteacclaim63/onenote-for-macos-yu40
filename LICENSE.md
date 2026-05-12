@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate OneNote for macOS addon with OneNote for macOS ultimate Addon: database templates & AI assistant. Featuring database templates and AI assistant, it's the best
 
 
 
